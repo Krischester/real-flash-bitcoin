@@ -18,6 +18,7 @@ Download Free Flash Bitcoin Sender Software In Our platform - https://t.me/allia
 Contact me - To Purchase The Flash Coins Telegram - @krischester - https://t.me/krischester 
 
 Want To Know About How Flash Bitcoin Works ? And What Is Flash Bitcoin ?
+https://t.me/allianceflashdeal
 
 Flash Bitcoin VS Real Bitcoin - https://youtu.be/wjaf7G8tzkI?si=zwnH3dBehAB3bviS
 
