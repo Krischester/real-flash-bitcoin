@@ -6,9 +6,9 @@ https://github.com/user-attachments/assets/1f3e8fc2-9d57-4dc7-996f-d421f36c28b6
 The only flash software in the world 🌎😏
 Buy The Real Flash Coins💎🌉 (Base Level) Visit Website For More Levels
 
-Transferable ⭐️
-Not Splittable ⭐️ 
-All Web 3 Wallets Supported ⭐️ Stays Life Long ⭐️
+#Transferable ⭐️
+#Not Splittable ⭐️ 
+#All Web 3 Wallets Supported ⭐️ #Stays Life Long ⭐️
 
 Website - https://t.me/allianceflashdeal
 
