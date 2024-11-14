@@ -16,7 +16,7 @@ Website - https://t.me/allianceflashdeal
 Download Free Flash Bitcoin Sender Software In Our platform - https://t.me/allianceflashdeal 
 
 
-Contact me - To Purchase The Flash Coins Telegram - @allianceflashdeal - https://t.me/allianceflashdeal 
+Contact me - To Purchase The Flash Coins on Telegram - @allianceflashdeal - https://t.me/allianceflashdeal 
 
 Want To Know About How Flash Bitcoin Works ? And What Is Flash Bitcoin ?
 https://t.me/allianceflashdeal
