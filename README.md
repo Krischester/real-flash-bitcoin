@@ -8,7 +8,7 @@ Buy The Real Flash Coins💎🌉 (Base Level) Visit Website For More Levels
 
 Transferable ⭐️
 Not Splittable ⭐️ 
-All Web 3 Wallets Supported ⭐️ 
+All Wallets Supported ⭐️ 
 Stays Life Long ⭐️
 
 Website - https://t.me/allianceflashdeal
